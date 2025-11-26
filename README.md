@@ -1,3 +1,3 @@
 # Kuria's portfolio
 
-tbd.
+## Education background
